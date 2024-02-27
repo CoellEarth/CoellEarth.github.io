@@ -9,7 +9,6 @@ I can contact me through email 3277145769@qq.com, or through wechat 15105841476 
 
 Pleasure to meet u （*AvA*）
 
-img src=C:\Users\32771\Pictures\Camera Roll\figure.png alt=chiikawa
 <!DOCTYPE html>
 <html>
 <head>
