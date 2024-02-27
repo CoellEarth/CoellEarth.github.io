@@ -14,4 +14,3 @@ Also, you are welcome to find me on [Instagram](https://www.instagram.com/coell_
 
 Can't wait to see you on my [Spotify](https://open.spotify.com/user/31pxxmordjt2vbeimr54tfqlo4oe?si=aOFnJtBRRWiVc6XUIhytiA)/[WangYiYun](https://y.music.163.com/m/user?id=1518815439&dlt=0846&app_version=9.0.25) where we can share beautiful music together.
 
-![AvA](https://imgur.com/gallery/Srl1aWT)    
